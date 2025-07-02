@@ -1,1 +1,1 @@
-# njrearncash.github.io
+# google.com, pub-7014781234855247, DIRECT, f08c47fec0942fa0
